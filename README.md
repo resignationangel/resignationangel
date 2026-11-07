@@ -5,4 +5,5 @@ I'm reign / ien. close ppl can call me rei
 I'm ftm. trans. and pansexual. yay
 
 ⠀⠀ ⠀⠀⠀dry but⠀I'm friendly and awesome 
-<img width="736" height="245" alt="1000374299" src="https://github.com/user-attachments/assets/cc3fd39d-fdf9-4788-9e0b-760308895350" />
+<img width="600" height="420" alt="1000378217" src="https://github.com/user-attachments/assets/92601059-18f1-4ab4-ac44-bd0f2164f388" />
+
