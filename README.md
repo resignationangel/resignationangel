@@ -7,3 +7,10 @@ I'm ftm. trans. and pansexual. yay
 ⠀⠀ ⠀⠀⠀dry but⠀I'm friendly and awesome 
 <img width="600" height="420" alt="1000378217" src="https://github.com/user-attachments/assets/92601059-18f1-4ab4-ac44-bd0f2164f388" />
 
+friend appreciation❤️‍🩹
+hi 6ums
+hi jinex5
+hi sweet-shot4
+hi 3SS
+
+I'm the oldest brother in 6ums & sweetshot4🙄
